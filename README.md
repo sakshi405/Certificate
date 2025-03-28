@@ -1,1 +1,1 @@
-# Certificate
+# Course Certifications
